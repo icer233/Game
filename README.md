@@ -31,7 +31,7 @@ Ryse：罗马之子 ———— v1.3中英文完整硬盘版.torrent
 S.T.A.L.K.E.R ———— 繁体中文高压完整版.torrent
 X战将 ———— 完美光盘版.torrent
 X战警2：金刚狼的复仇 ———— 破解版.torrent
-X战警前传：金刚狼 ———— 中英文D5完整版(Billyo~renxufeng制作).torrent
+X战警前传：金刚狼 ———— 中英文D5完整版(Billyrenxufeng制作).torrent
 [小游戏]小羊＋打飞鸡＋最难游戏＋打手枪＋拼图＋撕衣服＋邪恶游戏＋任天堂＋世嘉.torrent
 《F.E.A.R.2：起源计划》完整破解版.torrent
 《F.E.A.R极度恐慌》免安装繁体中文硬盘版.torrent

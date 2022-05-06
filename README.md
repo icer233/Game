@@ -5,7 +5,7 @@
 
 提供bt种子  .torrent文件下载，共计1298个种子，约57MB
 
-转自白的夜，[查看原文](https://baideye.com/502280fd13.htm)
+转自白的夜，[查看原文](https://baideye.com/502280fd13.html)
 
 文件列表如下：
 
